@@ -1,1 +1,1 @@
-🤣💀 @PBX1_BOTS
+ @PBX1_BOTS
